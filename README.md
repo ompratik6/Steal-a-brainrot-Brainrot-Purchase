@@ -1,2 +1,7 @@
 # Steal-a-brainrot-Brainrot-Purchase
-This is a very trusted site of 100k players of steal a brainrot  , here you can purchase Brainrot for real money , Brainrot will deliver to you very fastly , are you still reading! Go fast and purchase brainrot 
+Welcome to Brainrot Shop
+
+Here you can purchase Brainrots from Steal a Brainrot.
+After payment send your Roblox username and we will trade the brainrot to you in-game.
+
+You can contact in : ompratik6@gmail.com 
